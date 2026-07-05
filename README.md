@@ -1,1 +1,1 @@
-# holistic-evaluation-of-digital-nomad-cost-of-living-models
+# Holistic Evaluation of Digital Nomad Cost-of-Living Models 
